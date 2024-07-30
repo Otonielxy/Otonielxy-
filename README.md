@@ -1,5 +1,5 @@
 # Otonielxy-
-Opa me chamo otoniel 
+Opa me chamo otoniel 😎
 
 -estou aqui para me desenvolver 
 
